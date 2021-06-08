@@ -1,0 +1,1 @@
+![](img/imagen.gif)
